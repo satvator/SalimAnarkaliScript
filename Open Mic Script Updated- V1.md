@@ -28,7 +28,6 @@ Anarkali: Isiliye tumhara baap tumko belt se maarta hai. Tumhare paas building h
 
 Salim: Mera beshumar pyaar anarkali
 
-
 Anarkali: Tumhare pyaar se mera pet nai bharega meri haalat itni patli ho gayi hai ghar pe chai paani ka bhi intezaam nai ho paa rha aansoon pee pee kar kaam chala rhi hu main
 
 Aadab bamulaiza hoshiyar nigaanhein rubaru shehenshaayein zalaluddin akbar father- e-salim tashreef laa rhe haiiii
@@ -178,13 +177,13 @@ Birbal: Shezaade Salim  se kehna tha huzoor
 
 Akbar: Kahooo
 
-Birbal: nawab ham agla daaka china main dalenge, bharat ki deewar ko thoda khaskake china ko andar lelete hai apna hukum karne ka area badh jayega
+Birbal: Shahzaade ham agla daaka china main dalenge, bharat ki deewar ko thoda khaskake china ko andar lelete hai apna hukum karne ka area badh jayega
 
 Akbar: toh ab woh anarkali ka peecha chhod aur mere dhande main madat kar
 
 Salim: abbu aap yeh 500 baar bol chuke ho, bas repetetive baatein karte ho
 
-akbar: REPETITIVE ham repeat ki chinta karne lagte na toh tum iss duniya main hi nai aate
+akbar: REPETITIVE x2.. ham repeatitive ki chinta karne lagte na toh ye iss duniya main hi nai aate
 
 Salim: Abbu jaaan you talk so dirty, hame aapke dhandhe main abhi nai ghusna, hamara bohot zor ka mann ho rha hai mba karne ka
 
@@ -192,12 +191,11 @@ Akbar: Bohot zor bhi mat lagana beta nahi toh result turant piche se aa jayega. 
 
 Salim: Phool hai gulaab ka, nasha hai padhai ka, mba karne jaane do na, bhala hoga aapka
 
-Akbar: majja nai aaya, itne bawasir pitch dete ho mba karne jaaoge
+Akbar: majja nai aaya, itne bawasir pitch dete ho..aise karne jaaoge mba
 
 Salim: MBA MBA
 
 Bba wala ho ya, raja ka beta, pharma wala ya fir majdoor civil wala
-
 
 Kuch nai hua toh plan B, MBA MBA
 
