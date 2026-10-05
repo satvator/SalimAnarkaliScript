@@ -174,7 +174,7 @@ Salim: Anarkali main milne aaunga tumse, galat aur sahi ke paar, ek maidan hai, 
 
 Akbar: Birbal kuch bol rhe the
 
-Birbal: Salim nawab se kehna tha huzoor
+Birbal: Shezaade Salim  se kehna tha huzoor
 
 Akbar: Kahooo
 
