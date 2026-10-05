@@ -57,7 +57,7 @@ Birbal: Thoda correction huzoor, anarkali girlfriend abhi bani nahi hai
 
 Akbar: Girlfriend bani nai hai? Toh raat bhar ghungroo ka aawaz kaha se aati hai
 
-Salim: Abbajaan, pls don’t dirty talk like that. Hamara pehle situationship tha, phir soft launch hua, phir hard launch, phir delulu mein red flags ignore kiye, aur ab ghosting- breadcrumbing ke baad ‘it’s complicated’ chal raha hai.
+Salim: Haaawwww..Khuda ka khauf karein Abbajaan, pls don’t talk like that. Hamara pehle situationship tha, phir soft launch hua, phir hard launch, phir delulu mein red flags ignore kiye, aur ab ghosting- breadcrumbing ke baad ‘it’s complicated’ chal raha hai.
 
 Akbar: Yeh tumhara kya chal rha hai salim, hamare zamaane main ham seedha agwa karke shaadi karte the
 
@@ -74,7 +74,7 @@ Friend 1: ek assignment khatam karo, toh doosra assignment saamne khada hai, yeh
 
 Friend 2: kal quiz hai na… syllabus dekha esa lag raha hai woh khud hee mujhe chilla chilla ke keh raha hai ki tumse na ho payega
 
-Friend 3: Upar se presentations, deadlines, group projects jo group toh hota hai nhi. ughhh yeh dukh toh khatam hee nhi ho raha
+Friend 3: Ughhh, presentations, deadlines, group projects… MBA hai ya personal attack?
 
 Anarkali: buss kar yaar.… regression padhne aayi thi, ab lag raha hai kuch din mein depression mein chali jaungi
 
@@ -86,11 +86,11 @@ Anarkali notices him, freezes, and her notebook falls.
 
 Anarkali: Damnn good looks… good looks… and good looks, I like it. Kaun hai yeh?
 
+Friend 3: Woh sab toh theek hai lekin yeh push ups kyu maar rha hai?
+
 Friend 1: Arre, yeh romeo hai, hamare college ka naya student. Shayad isi department mein admission liya hai…
 
 Friend 2: Full kukkad kamaal da
-
-Friend 3: Woh sab toh theek hai lekin yeh push ups kyu maar rha hai?
 
 Anarkali: let me check his insta handle, damnn 26 followers… MAKES ME HOTT.. SHIT SHIT SHIT uska purana post like kar diya
 
