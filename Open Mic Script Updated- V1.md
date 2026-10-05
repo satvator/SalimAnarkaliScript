@@ -111,9 +111,47 @@ Romeo’s friend: Bhai Aurat ka chakkar, maut se takkar
 
 ## Scene 3: Global Local (romeo and anarkali)
 
-ROMEO: Toh… aaj ka plan kya hai? ANARKALI: Padhai karni hai… obviously. Kal presentation hai. Anarkali’s phone starts ringing. She looks at the screen. Romeo: Bro Acad Block main hai kya kar rhi hai ANARKALI: Oh shittt, oh no … Salim. ROMEO: Uthaa lo. ANARKALI: Nahi yaar… ghar pe bolenge padhai kaisi chal rahi hai, attendance kitni hai, khana khaya ya nahi… ROMEO: toh? ANARKALI: Mujhe khud nahi pata attendance kitni hai. Phone rings again. ANARKALI: Ughhh… ye insaan itne calls kyun karta hai? She puts the phone on silent. ROMEO: Tum dono ka kuch scene hai kya? ANARKALI: Kya? ROMEO: I mean… you know… relationship? ANARKALI: Relationship? No no no. Hum bas ache friends hain thoda complicated hai. ROMEO: Friends? ANARKALI: Haan. ROMEO: Toh main tumhara haath kyun pakad raha hoon? ANARKALI: Friends bhi toh haath pakad sakte hain. ROMEO: Aur main tumhe date pe kyun le ja raha hoon? ANARKALI: Group study. ROMEO: Hum dono hi group hain. ANARKALI: Exactly. Group study.
+ROMEO: Toh… aaj ka plan kya hai? ANARKALI: Padhai karni hai… obviously. Kal presentation hai. 
 
-Romeo’s friend: Baap ki chaddi fati hui hai, ghar main chula jala nai hai aur beta laga pada hai What Are We
+Anarkali’s phone starts ringing. She looks at the screen. 
+
+Romeo: Bro Acad Block main hai kya kar rhi hai 
+
+ANARKALI: Oh shittt, oh no … Salim. 
+
+ROMEO: Uthaa lo. 
+
+ANARKALI: Nahi yaar… ghar pe bolenge padhai kaisi chal rahi hai, attendance kitni hai, khana khaya ya nahi… 
+
+ROMEO: toh? 
+
+ANARKALI: Mujhe khud nahi pata attendance kitni hai. Phone rings again. 
+
+ANARKALI: Ughhh… ye insaan itne calls kyun karta hai? She puts the phone on silent. 
+
+ROMEO: Tum dono ka kuch scene hai kya? 
+
+ANARKALI: Kya? 
+
+ROMEO: I mean… you know… relationship? 
+
+ANARKALI: Relationship? No no no. Hum bas ache friends hain thoda complicated hai. 
+
+ROMEO: Friends? 
+
+ANARKALI: Haan. 
+
+ROMEO: Toh main tumhara haath kyun pakad raha hoon? 
+
+ANARKALI: Friends bhi toh haath pakad sakte hain. 
+
+ROMEO: Aur main tumhe date pe kyun le ja raha hoon? 
+
+ANARKALI: Group study. ROMEO: Hum dono hi group hain. 
+
+ANARKALI: Exactly. Group study.
+
+Romeo’s friend: Yahan Baap ki chaddi fati hui hai, ghar main chula nahi jal raha aur beta laga pada hai What Are We x 2
 
 Her phone rings again. Her friends are standing near them. This time FRIEND 1 looks at the screen.
 
