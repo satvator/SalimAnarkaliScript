@@ -6,7 +6,7 @@
 
 ## Scene 1: Salim’s palace
 
-Narrator’s dialogue: Ek taraf hai Mughal saltanat ka shehzada… aur doosri taraf hai Anarkali. Mohabbat purani hai… lekin zamaana naya hai.
+Narrator’s dialogue: Ek taraf hai Mughal saltanat ka shehzada salim… aur doosri taraf hai (hamari mashhoor/ hum sabki chahiti) Anarkali. Mohabbat purani hai… lekin zamaana/Mausam naya hai.
 
 Aur aaj bhi Salim Anarkali ke peeche pada hai
 
@@ -28,7 +28,7 @@ Anarkali: Isiliye tumhara baap tumko belt se maarta hai. Tumhare paas building h
 
 Salim: Mera beshumar pyaar anarkali
 
-Anarkali: Tumhare pyaar se mera pet nai bharega meri haalat itni patli ho gayi hai ghar pe chai paani ka bhi intezaam nai ho paa rha aansoon pee pee kar kaam chala rhi hu main
+Anarkali: Par Gucci ka bag toh nahi hai na. Ek mhine se purane coach bag se kaam chala rahi hun.
 
 Aadab bamulaiza hoshiyar nigaanhein rubaru shehenshaayein zalaluddin akbar father- e-salim tashreef laa rhe haiiii
 
@@ -219,7 +219,7 @@ chipkali ke taang ke saath khadi hai
 
 Salim’s friend: mat pado chakkar main
 
-koi nai aamir khan ke takkar main
+koi nai salim ke takkar main
 
 Salim: Anarkali, yeh kya chal rha hai tumhara aisa kaise kar sakti ho tumm hamara bhi toh itna sahi chal rha hai ab main aa gaya hu na tod de yeh badan take my love, take my soul. Yeh thaan ke tharre ko chhod de.
 
